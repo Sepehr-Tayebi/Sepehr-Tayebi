@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on my own sources<br>🌱 I’m currently learning cyber security<br>
+🔭 I’m currently working on my own sources<br>
 
 
 ## 🌐 Socials:
